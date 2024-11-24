@@ -1,4 +1,4 @@
-![image](https://media1.tenor.com/m/cXe4QCg2N6IAAAAC/precure-pretty-cure.gif)
+
 
 ![image](https://tenor.com/en-GB/view/jinx-arcane-season-two-season2-silly-gif-10265592247535687537.gif)
 
