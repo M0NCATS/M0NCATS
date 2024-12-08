@@ -5,7 +5,7 @@
 *"There is no good version of me ."*
 
 
-![image](https://github.com/user-attachments/assets/90393015-742a-496f-8c64-9ac92dbee8f9.gif)
+![image](https://tenor.com/en-GB/view/jinx-arcane-league-of-legends-lol-powder-gif-23914119.gif)
 
 my mental health deteriorating
 
